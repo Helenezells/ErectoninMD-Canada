@@ -76,5 +76,9 @@
 <p><a href="https://www.facebook.com/ErectoninMDCA/"><strong>#ErectoninMDCanadaWebsite</strong></a></p>
 <p><a href="https://www.facebook.com/groups/erectoninmdca"><strong>#ErectoninMDCanadaWhereToBuy</strong></a></p>
 <p><a href="https://www.facebook.com/ErectoninMDMaleEnhancementCanada.CA"><strong>#ErectoninMDCanadaAdvantages</strong></a></p>
-<p>&nbsp;</p>
+<p><strong>OFFICIAL FACEBOOK@:-</strong></p>
+<p><a href="https://www.facebook.com/ErectoninMDCanada/"><strong>https://www.facebook.com/ErectoninMDCanada/</strong></a></p>
+<p><a href="https://www.facebook.com/ErectoninMDCA/"><strong>https://www.facebook.com/ErectoninMDCA/</strong></a></p>
+<p><a href="https://www.facebook.com/groups/erectoninmdca"><strong>https://www.facebook.com/groups/erectoninmdca</strong></a></p>
+<p><a href="https://www.facebook.com/ErectoninMDMaleEnhancementCanada.CA"><strong>https://www.facebook.com/ErectoninMDMaleEnhancementCanada.CA</strong></a></p>
 </div>
